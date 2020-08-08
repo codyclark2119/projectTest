@@ -1,1 +1,1 @@
-# This is a project no one will like
+# This is a project EVERYONE will like
